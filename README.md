@@ -4,6 +4,16 @@ A repository for me to write about my thoughts/feelings, try to understand them 
 
 ## 05/06/23 - No end in sight
 
+All I want to do, is to be of service to others, even when that means my downfall. Why do I want to help others?
+Why did I create this repository?
+Maybe because I have empathy?
+Because I know how it feels like to think you're alone in this? I feel it daily.
+Maybe because I wish, that someone one day will be there for me? I try to be that someone for someone else.
+
+You're not alone, I am out here! But am I ...?
+
+## 04/06/23 - No end in sight
+
 I don't see how I could get rid of this. When it will go away. How it can go away.
 
 How I can make it go away.
@@ -15,6 +25,7 @@ It stalks you everywhere you go. There is no hiding. No moment of rest.
 Maybe, I'm too demanding, and just have to let it go. Not be busy with it every so often. In order for it to leave my mind, me... .
 
 Maybe I shouldn't let it rest. Or maybe I really should let it rest. Otherwise it might be me that rests.
+
 
 ## 01/06/23 - Everlasting sadness
 
