@@ -2,7 +2,7 @@
 
 A repository for me to write about my thoughts/feelings, try to understand them and possibly help someone in the meantime. In case you feel similar to me, feel free to reach out any time! There is another repo socials where you can probably find a communication-channel that works for both of us.
 
-## 05/06/23 - No end in sight
+## 05/06/23 - You're not alone
 
 All I want to do, is to be of service to others, even when that means my downfall. Why do I want to help others?
 Why did I create this repository?
