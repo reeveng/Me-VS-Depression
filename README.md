@@ -2,6 +2,20 @@
 
 A repository for me to write about my thoughts/feelings, try to understand them and possibly help someone in the meantime. In case you feel similar to me, feel free to reach out any time! There is another repo socials where you can probably find a communication-channel that works for both of us.
 
+## 05/06/23 - No end in sight
+
+I don't see how I could get rid of this. When it will go away. How it can go away.
+
+How I can make it go away.
+
+A permanent feeling, something or someone that's haunting you.
+
+It stalks you everywhere you go. There is no hiding. No moment of rest.
+
+Maybe, I'm too demanding, and just have to let it go. Not be busy with it every so often. In order for it to leave my mind, me... .
+
+Maybe I shouldn't let it rest. Or maybe I really should let it rest. Otherwise it might be me that rests.
+
 ## 01/06/23 - Everlasting sadness
 
 Often I get told that I have no right to be depressed, because I have a fairly decently paying job, a wife, a family that loves/supports me, ... . The life some people wished they had, I guess. That however doesn't help to get rid of this everlasting/omnipresent feeling. Whatever I do, this weird feeling follows me, eats away any other feeling. Its like falling into a pit, deeper and deeper -> day by day, with no end in sight. Like one of the nightmares I had when I was younger: I'd wake up, be in my bed, but my bedroom had no walls, it was a freestanding platform with a bed in the corner, surrounded by void on all sides, the only way to escape the platform was by jumping of it, falling into the endless void, till I got looped back to the bed and woke up again, and again, always on repeat, for night on end.
