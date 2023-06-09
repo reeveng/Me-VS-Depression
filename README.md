@@ -17,6 +17,7 @@ A note for **if you don't understand depression**:
 5. its not just feeling sad and low, but rather a persistent and very invasive emotion/mood that stays with you, often for months or even years
 6. it is often hidden in plain sight, the person that you like to talk to, might very well be depressed, you can't see it on someone's façade
 7. its very often misunderstood by everyone that doesn't have it or haven't directly come in contact with it
+8. not everyone with depression wants to die
 
 Not to say, I'd rather be anything but depressed.
 
