@@ -2,6 +2,34 @@
 
 A repository for me to write about my thoughts/feelings, try to understand them and possibly help someone in the meantime. In case you feel similar to me, feel free to reach out any time! I have another repo called "socials" where you can probably find a communication-channel that works for both of us.
 
+## 14/06/2023 Internalized thoughts
+
+This image represents to a certain degree how I feel that people look at me and how I look at others.
+
+<img src="./images/DSCF6891.jpg">
+
+Let's imagine that the glass represents the experience of depression We both are on other sides of the glass, looking through it, but its cloudy, hard to see things clear, hard to see the other side. Both of us are on opposite sides of the glass, trying to understand and connect with each other, but the glass is cloudy, making it difficult to see things clearly and hindering our ability to fully comprehend the other side.
+
+On one side of the glass is the person experiencing depression. They may feel trapped, isolated, and unable to fully express or communicate their thoughts and emotions. The cloudiness of the glass symbolizes the distortion and confusion that depression can bring, making it challenging for others to grasp the depth of their experience.
+
+On the other side of the glass is the person trying to understand and possibly support the other individual. They may have genuine care and concern, but the cloudiness of the glass makes it hard to perceive the full extent of what the other person is going through. They may struggle to comprehend the emotional pain and internal struggles associated with depression.
+
+Just like looking through cloudy glass, it requires patience, empathy, and active efforts to gain a clearer understanding of the other side. It involves actively listening, seeking information about depression, and being open to the perspectives and experiences of the person living with depression.
+
+It's important to acknowledge that while we may not fully see or comprehend everything on the other side of the glass, we can still offer support, compassion, and reassurance. By extending a hand, providing a listening ear, and showing empathy.
+
+Ultimately, I am trying to show the importance of empathy, patience, and the willingness to learn and understand the experiences of those facing depression. By acknowledging the cloudiness of the glass and actively working to gain a clearer view, we can foster a supportive environment that promotes healing and well-being. One day society (hopefully) will be more understanding.
+
+Today, is not that day...
+
+## 13/06/2023 Suicide scale
+
+Yesterday evening, I saw this funny representation of how far into suicide you are.
+
+<img title="suicide" alt="what scale of suicide are you on?" src="./images/reddit-suicide-scale.jpg">
+
+I feel like most people I know are about a 2 on the scale. Wonder what I'd be if I could be objective about it. What's your rating on the scale?
+
 ## 12/06/2023 Integral
 
 Once upon a time, there was a person who carried a heavy burden deep within themselves. It was a burden called depression. At first, it was just a whisper, a subtle feeling of sadness that lingered in their heart. But as time went on, it grew louder, gradually permeating every corner of their existence.
