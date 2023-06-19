@@ -2,6 +2,18 @@
 
 A repository for me to write about my thoughts/feelings, try to understand them and possibly help someone in the meantime. In case you feel similar to me, feel free to reach out any time! I have another repo called "socials" where you can probably find a communication-channel that works for both of us.
 
+## 19/06/2023 Burning world
+
+Lately I feel way more stressed. As if constantly I see everything burning in front of my eyes. The only times I feel somewhat ok, is during soletary walks, a breath of fresh air, a period of nothing asking/requiring attention.
+
+My solitary walks became a temporary escape from the harsh reality. The quiet moments, surrounded by nature's fleeting beauty, provided a brief respite from the suffocating weight of despair. But no matter how far I walked, the burning world remained inescapable.
+
+In the depths of my own turmoil, I sought answers. I delved into the origins of this catastrophe, desperate to understand how it had come to be.
+
+I want to escape this reality so badly, yet I have too many people that depend on me. If I escape reality, those around me will crumble, what I build will burn and nothing will be left standing.
+
+I have to sit this one through 🙁, don't give up idiot, this isn't about you.
+
 ## 17/06/2023 Make it make sense
 
 I try to be present as much as possible, but sometimes, the past catches up. Every so often, you get burried under 100m of dirt and feel like you are unable to breath. As if time has folded in on itself, merging past, present and future into an inescapable labyrinth.
