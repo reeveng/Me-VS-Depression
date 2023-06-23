@@ -2,6 +2,12 @@
 
 A repository for me to write about my thoughts/feelings, try to understand them and possibly help someone in the meantime. In case you feel similar to me, feel free to reach out any time! I have another repo called "socials" where you can probably find a communication-channel that works for both of us.
 
+## 21/06/2023 Predefinition
+
+One of the biggest factors on how this game will play out for you is the postcode you were born in, rather than the actual actions you undertake each and every day. Does this mean that the actions you undertake are meaningless? No and yes, to a certain degree, your actions could help you achieve more in life, yet on the flipside, these achievements might be nullified with what you could have achieved if you spawned on the other side of the planet or even the next city.
+
+People are dumb and weird.
+
 ## 19/06/2023 Burning world
 
 Lately I feel way more stressed. As if constantly I see everything burning in front of my eyes. The only times I feel somewhat ok, is during soletary walks, a breath of fresh air, a period of nothing asking/requiring attention.
@@ -56,7 +62,7 @@ That'll be the end of talking about her then?!? Hopefully...
 
 This image represents to a certain degree how I feel that people look at me and how I look at others.
 
-<img src="./images/DSCF6891.jpg">
+![someone looking through a window, mostly black and white, with a faint view of a sunset](https://github.com/reeveng/Me-VS-Depression/blob/main/images/DSCF6891.jpg)
 
 Let's imagine that the glass represents the experience of depression We both are on other sides of the glass, looking through it, but its cloudy, hard to see things clear, hard to see the other side. Both of us are on opposite sides of the glass, trying to understand and connect with each other, but the glass is cloudy, making it difficult to see things clearly and hindering our ability to fully comprehend the other side.
 
@@ -76,7 +82,7 @@ Today, is not that day...
 
 Yesterday evening, I saw this funny representation of how far into suicide you are.
 
-<img title="suicide" alt="what scale of suicide are you on?" src="./images/reddit-suicide-scale.jpg">
+![what scale of suicide are you on?](https://github.com/reeveng/Me-VS-Depression/blob/main/images/reddit-suicide-scale.jpg)
 
 I feel like most people I know are about a 2 on the scale. Wonder what I'd be if I could be objective about it. What's your rating on the scale?
 
